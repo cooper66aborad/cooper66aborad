@@ -2,7 +2,7 @@
 - 👀 I’m interested in hiking, camping and dogs
 - 🌱 I’m currently learning Java, Python, and Processing
 - 💞️ I’m looking to collaborate on IB Computer Science projects for AP Computer Science Projects
-- 📫 How to reach me tcooper@islux.lu
+- 📫 How to reach me cooper66aborad@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I have traveled to over 65 countries.
 
